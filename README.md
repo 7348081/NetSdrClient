@@ -1,3 +1,4 @@
+Гребенюк Євгеній Андрійович Бст-125-23-3-СЗ
 створив акаунт гітхаб
 <img width="1885" height="874" alt="image" src="https://github.com/user-attachments/assets/7c17ca61-9046-4590-bc25-f770274e324b" />
 
